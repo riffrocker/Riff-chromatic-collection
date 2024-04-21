@@ -1,1 +1,1 @@
-here is all of the vocals for my lyrics videos
+here are all of the vocals for my lyrics videos
