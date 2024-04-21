@@ -1,3 +1,3 @@
 # chromatic-collection
 it mah chromatic collection
-you must credit me if you use my chromatics
+you must credit me if you use my chromatics, fx or vocals
